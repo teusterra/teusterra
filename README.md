@@ -1,4 +1,4 @@
-## Hey, dualkore here! :wave:
+## Hey, Mateus here! :wave:
 
 <img align="right" width="20%" src="https://64.media.tumblr.com/da3d145cd14c98feb018fc773c00db5d/978a02eedd68a2f2-0b/s400x600/8d0f81357ebefa202d80ef25fdcab87f526702aa.gifv">
 
