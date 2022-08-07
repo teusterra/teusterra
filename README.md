@@ -1,6 +1,6 @@
 ## Hey, Mateus here! :wave:
 
-<img align="right" width="20%" src="https://64.media.tumblr.com/da3d145cd14c98feb018fc773c00db5d/978a02eedd68a2f2-0b/s400x600/8d0f81357ebefa202d80ef25fdcab87f526702aa.gifv">
+<img align="right" width="20%" src="https://i.imgur.com/iPBcG2u.mp4">
 
 I'm Mateus Terra, undergraduate student at UnB and co-founder of Ayzen Tech.  
 I also have an associate degree in cyber security from IESB.
