@@ -8,7 +8,7 @@ I also have an associate degree in cyber security from IESB.
 -   :hammer_and_pick: C++ / Qt / JavaScript / PHP / TechArt  
 -   :pencil2: [Arch Linux](https://wiki.archlinux.org/title/Arch_Linux) / [Neovim](https://neovim.io/) / [Blender](https://www.blender.org/) / [Aseprite](https://github.com/aseprite/aseprite)
 -   :seedling: Taking courses & doing assignments at UnB.
--   :man: Pronouns: he/him
+-   :man: Pronouns: Whatever you want.
 
 :page_with_curl: I'm currently learning:
 <br><br>
